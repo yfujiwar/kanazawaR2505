@@ -1,0 +1,1 @@
+# kanazawaR2505
